@@ -36,3 +36,126 @@
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=truonghuynhcongdanh&show_icons=true&locale=en" alt="truonghuynhcongdanh" /></p>
 
 <p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=truonghuynhcongdanh&" alt="truonghuynhcongdanh" /></p>
+DVMXH 
+Facebook : HV Dame Facebook :
+
+Cơ Bản 299k / Nâng Cao 499k
+
+HV Dame Bản Quyền Facebook
+
+Cơ Bản : 2tr3 / Nâng Cao : 3tr
+
+HV Unlock Facebook :
+
+hv Unlock 282 : 400k
+
+hv Unlock 956 + 282 : 650k
+
+HV ADS Facebook :
+
+Cơ Bản : 7tr5
+
+Nâng cao 9tr3
+
+–> TikTok hv Dame TikTok
+
+Cơ bản : 430K / Nâng Cao : 650K
+
+HV Kháng, Unlock TikTok
+
+Cơ bản 2tr5 / nâng cao 4tr
+
+–> Website service : Tool HaToKi DDoS Website ( Công Cụ Đánh Sập Web ) :
+
+Tool Basic : 450k
+
+Tool Vip : 599k
+
+Tool Super : 799k
+
+Tool Legendary : 1tr2
+
+Nhận Bảo Mật, Anti DDoS Website giá rẻ ( 1tr4k -> 3tr5 )
+
+Nhận Code Website / Thiết kế Website theo yêu cầu ( 3tr5 - 17tr )
+
+–> Hacking And Security Usb data theft (đánh cắp dữ liệu pc) : 1tr8k - 2tr7
+
+Rat Botnet lấy cookie + tk mk PC :
+
+Basic : 650k
+
+Vip : 1tr2
+
+Supper : 1tr7
+
+Premium : 2tr ( Bypass Windows Defender )
+
+Panel Rat : 3tr ( Bypass Windows Defender )
+
+Source Rat : 3tr5 ( Bao setup A-Z )
+
+Tool Deface attack ( đổi giao diện trái phép website người khác )
+
+Basic : 600k
+
+Vip : 750k
+
+Premium : 990k
+
+Ransomware of androi and computer :
+
+Basic 650k
+
+Vip 1tr5
+
+Premium : 2tr5 ( Có tool giải pass ) ( Bypass Windows Defender )
+
+Facebook Service :
+
+Unlock 956 : 950k
+
+Unlock 282 kcc : 950k
+
+Unlock FAQ : 4tr5 - 15tr
+
+Chạy ADS cân vi phạm chính sách : Min 650k/ 1 ngày
+
+Dame Fb : 1tr3 - 3tr5 ( tùy link )
+
+TikTok Service :
+
+Kháng vi phạm 13t part đầu, part 2 : 550k
+
+Kháng 13T part 3,4,… ( dạng %v ) : 2tr - 3tr
+
+Kháng gậy vi phạm cộng đồng : 600k
+
+Kháng kênh die vi phạm cộng đồng : 1tr5k - 3tr
+
+Mở Livestream bị Khóa : 1tr5 - 4tr Xóa Cảnh Báo Tài Khoản : 1tr5k - 3tr ( 100% về )
+
+Mở Livestudio : 1tr5
+
+Dame, Rip acc TikTok : 1tr5 - 7tr ( tùy link )
+
+Thuê KOL : TikToker, Youtuber ( giá cả thương lượng
+
+Code Website / Thiết kế Website theo yêu cầu ( 3tr - 20tr )
+
+Code web Cltx Zalopay ( 2tr5 )
+
+Code web Like Sub giao diện riêng ( 2tr5 - 6tr5)
+
+Code web Gạch Thẻ ( 2m5 )
+
+Code web Clone FB ( 3m )
+
+Anti DDoS ( 1m -> 3m5 )
+
+Chạy Spam Cmt trên những group lớn (1.000.000k/1day - min 7 ngày)
+
+Xây Dựng Fanpage theo yêu cầu (Giá thương lượng)
+
+Dữ Liệu PC : (bao gồm info, full tk mk, cookie ) (200k/1 file random)
+
